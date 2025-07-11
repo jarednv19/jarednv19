@@ -1,4 +1,4 @@
-# QA Engineer 💻 | Data Analyst 🔍
+# Ingeniero en QA 💻 | Analista de Datos 🔍
 
 
 ## 👨‍💻 Sobre mí
